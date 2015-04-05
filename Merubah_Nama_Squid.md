@@ -1,0 +1,1 @@
+http://www.forummikrotik.com/general-networking/20633-%5Btuts%5D-cara-merubah-versi-lusca-squid-menjadi-seperti-seperti-yang-anda-mau.html

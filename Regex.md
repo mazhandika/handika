@@ -1,0 +1,1 @@
+http://www.forummikrotik.com/showwiki.php?title=REGULAR+EXPRESSION+basic
